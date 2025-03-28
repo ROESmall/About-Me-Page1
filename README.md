@@ -1,3 +1,4 @@
 # About-Me-Page1
-This is a page that we created to symbolize it we repo the assignment correctly.
-##...i HAVE TO RE WATCH THE VIDEO
+
+## DISCRIPTION
+Hi,my name is Roletia it's pronounced (Ro-le-Tia) lol it's like from TIA and Tamara. I am a single mother of four grown adults, ages 28,27,24,23. I also have one beautiful granddaugther. I am a very private individual, I am very sociable and lively when I am out in public,and what they call the "Life of The Party". Yet, in my personal life, I am very anti-social, I do not like company at my home, I do not like gosssip or belittlement of others,I can not actively in petty drama. My home life is very peaceful and serene. I am a Godfearing woman, who prides herself on spreading love, peace, light, and the Good News of The Gospel of 'Jesus Christ" am Ivrit so we say "Yahusha Ha'Mashiach" ( the son). He came down in His Father's name "Yahuah". I spread joy every where I go,I even have a tattoo tha says; Ms.Joyrider360 and I try to live up to it.;)
