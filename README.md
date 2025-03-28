@@ -17,11 +17,21 @@ During these tramatic years, my four childern and I were homeless 12 times runin
 health started, slowly deteriorating!
 
 
-Praise Report Time:
-
+PRAISE REPORT:
 
 At times I've been tempoararily blind; been in a coma for a few days; has been temporarily partially paralyzed on my intire right side of my body for over 2yrs.;endured two neck and two back procedures etc., and ltes not talk about the endless hospital stays.  top of all that major health issues that caused me to have my first stroke New Year's Day 2025, while I just had relocated to Texas, and had only lived there for two days before I had the stroke, and had to relocate back to Lousiana so I could be better taken care of by family. The doctors always told me I would be dead by "40"! 
 False! I am almost "50" yrs.old having two heart conditions, being a Sickle Cell Survior, a Lupus Survior with six mixed connective muscle and tissue disease, having Tyroid disease, and I can go on and on! But, man when them doctors gave up on me, all I had left was my "FAITH"! I prayed for healing, financial blessings etc. and He answered "ALL OF MY PRAYERS! He may not come when I want him, but He will be there right on time.
 
 Now. March 2025 I AM "JOYRIDING" again! I AM able to walk again w/o assistance, my speech and sight are back, I am finally getting the feeling back in my limbs due to (numbness). I can hold my head upright now,( I once had no control over it for 3 days), I can feel the healing day by day, when you walk by FAITH and not by sight. I AM a living testimony, that prayers really changes things! So I had a reason to do a "360" and turn my life completely over to The Most High Yahuha / Yahusha Ha'Mashiach. 
 
+
+
+
+
+##LIST OF HOBBIES
+_create custom candles 
+_make homemade, hair and skin products
+_create custom cyrstal jewelry peices 
+_cooking/baking
+_fishing
+_reading the Cepher
