@@ -23,12 +23,12 @@ False! I am almost "50" yrs.old having two heart conditions, being a Sickle Cell
 
 
 ### LIST OF HOBBIES
--create custom candles 
--make homemade, hair and skin products
--create custom cyrstal jewelry peices 
--cooking/baking
--fishing
--reading the Cepher
+# -create custom candles 
+# -make homemade, hair and skin products
+# -create custom cyrstal jewelry peices 
+# -cooking/baking
+#-fishing
+#-reading the Cepher
 
 
 ### UdateNow. March 2025 I AM "JOYRIDING" again! I AM able to walk again w/o assistance, my speech and sight are back, I am finally getting the feeling back in my limbs due to (numbness). I can hold my head upright now,( I once had no control over it for 3 days), I can feel the healing day by day, when you walk by FAITH and not by sight. I AM a living testimony, that prayers really changes things! So I had a reason to do a "360" and turn my life completely over to The Most High Yahuha / Yahusha Ha'Mashiach. 
