@@ -8,7 +8,7 @@ Hi,my name is Roletia it's pronounced (Ro-le-Tia) lol it's like from TIA and Tam
 
 ## Features
 
-"Joyriding" w/ Ms.Joyrider360.'
+### "Joyriding" w/ Ms.Joyrider360.'
 
 
 Why Ms.Joyrider360 you ask? Well it started back up after 2012 (this is when the "360" was added) when Hurricane Issac hit the LaPlace area located in St. John Parish. This was the beging of one of worst times of my life!!!...But God,!!! HalleuYah!!!... He carried me through every obstacles thrown before me. On this 12yr. roller coaster called "LIFE". 
@@ -17,7 +17,7 @@ During these tramatic years, my four childern and I were homeless 12 times runin
 health started, slowly deteriorating!
 
 
-PRAISE REPORT:
+## PRAISE REPORT:
 
 At times I've been tempoararily blind; been in a coma for a few days; has been temporarily partially paralyzed on my intire right side of my body for over 2yrs.;endured two neck and two back procedures etc., and ltes not talk about the endless hospital stays.  top of all that major health issues that caused me to have my first stroke New Year's Day 2025, while I just had relocated to Texas, and had only lived there for two days before I had the stroke, and had to relocate back to Lousiana so I could be better taken care of by family. The doctors always told me I would be dead by "40"! 
 False! I am almost "50" yrs.old having two heart conditions, being a Sickle Cell Survior, a Lupus Survior with six mixed connective muscle and tissue disease, having Tyroid disease, and I can go on and on! But, man when them doctors gave up on me, all I had left was my "FAITH"! I prayed for healing, financial blessings etc. and He answered "ALL OF MY PRAYERS! He may not come when I want him, but He will be there right on time.
@@ -28,10 +28,10 @@ Now. March 2025 I AM "JOYRIDING" again! I AM able to walk again w/o assistance, 
 
 
 
-##LIST OF HOBBIES
-_create custom candles 
-_make homemade, hair and skin products
-_create custom cyrstal jewelry peices 
-_cooking/baking
-_fishing
-_reading the Cepher
+## LIST OF HOBBIES
+-create custom candles 
+-make homemade, hair and skin products
+-create custom cyrstal jewelry peices 
+-cooking/baking
+-fishing
+-reading the Cepher
