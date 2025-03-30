@@ -1,7 +1,6 @@
 # About-Me-Page1
 
 ## DISCRIPTION 
-Roletia is my name, pronounced (Ro-le-Tia). A mother of four grown adults from ages; 28-23 along with one beautiful granddaugther. 
 
 
 ## Author:https://github.comROESmall/About-Me-Page1 
